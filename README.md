@@ -1,5 +1,4 @@
-# clubhouse-notes
-Notes from clubhouse sessions.
+Club Rules:-
 
 There are some rules that one must follow! 
 🙏 Be nice to each other.
